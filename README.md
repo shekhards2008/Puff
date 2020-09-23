@@ -1,1 +1,1 @@
-# Puff
+It is formed by a mixture of semolina and buttermilk. When it is completely cooked it  look like a puff.
